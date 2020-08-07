@@ -1,0 +1,1 @@
+# yasumasamakot.github.io
